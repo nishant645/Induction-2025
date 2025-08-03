@@ -8,6 +8,6 @@ The day of the induction program began with Path and Shabad Kirtan in the colleg
 
 Tea Break
 
-##10:00 onwards
+## 10:00 onwards 
 
 We were introdused to collage's legacy through a college orientation presentation,followed by a ,motivational video featuring our proud Alumni- Sangam Arora and Arshdeep Singh(Batch 2025)-sharing how dedication and involvement beyond the classroom shaped their succesful journeys.Later than,Er.Ravinder Garg-Chief Engineer,Muncipal Corporation,Ludhiana and Er.Rakesh Kumar-Alumnus(Batch 1991),ADC Ludhiana were share their inspiring journey andencourag us to grow with values,skills,and vision.
