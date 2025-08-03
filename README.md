@@ -6,7 +6,7 @@ The day of the induction program began with Path and Shabad Kirtan in the colleg
 
 ## 09:30 To 10:00
 
-
+Tea Break
 
 ##10:00 onwards
 
